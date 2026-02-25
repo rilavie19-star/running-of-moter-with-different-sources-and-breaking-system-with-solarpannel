@@ -1,0 +1,1 @@
+# running-of-moter-with-different-sources-and-breaking-system-with-solarpannel
